@@ -1,2 +1,2 @@
 # Barber-website-
-My first business website
+opportunity to growth site 
